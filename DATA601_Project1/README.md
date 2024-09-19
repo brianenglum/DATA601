@@ -36,6 +36,7 @@
 >Rotten Tomatoes. (n.d.). The Terminator.<br> Retrieved from Rotten Tomatoes web site: https://www.rottentomatoes.com/m/terminator<br>
 >Wilkinson, A. (2017, September 7). Why Hollywood keeps making the same kinds of movies, in one chart.<br> Retrieved from Vox web site: https://www.vox.com/culture/2017/9/7/16257426/box-office-global-domestic-china-mummy-furious-despicable-me-wolf-warrior<br>
 
+Tester
 
 
 
